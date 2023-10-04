@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on IDK
 - 📫 How to reach me --------> https://www.instagram.com/enchanted_urs/
 -    I AM NOT A SNITCH yayyyyyy!!!!!
-
+-     Me and My team does all the work!!!
 
 <!---
 Deepshikalenka24/Deepshikalenka24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
