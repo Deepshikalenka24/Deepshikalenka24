@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning in 6th
 - 💞️ I’m looking to collaborate on IDK
 - 📫 How to reach me --------> https://www.instagram.com/enchanted_urs/
+-    I AM NOT A SNITCH yayyyyyy!!!!!
 
 
 <!---
